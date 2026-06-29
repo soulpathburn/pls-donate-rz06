@@ -1,4 +1,4 @@
-#  
+#  pls donate secure Script is the best pls donate Script, featuring speed and fly. Safe and powerful for all your needs.
 
 
 
